@@ -1,5 +1,6 @@
 # Aula-2
-![](https://github.com/taimaraschwb24/Aula-2/assets/146302484/e6810c3b-ff6e-4920-96f8-a58076adfbb4)
+![image](https://github.com/taimaraschwb24/Aula-2/assets/146302484/806a7638-034a-40e8-b706-920a224ac64a)
+
 
 ![](![image](https://github.com/taimaraschwb24/Aula-2/assets/146302484/c588d3c2-a305-49d0-90b8-82524d160071)
 
